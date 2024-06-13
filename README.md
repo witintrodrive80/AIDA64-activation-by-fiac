@@ -1,0 +1,1 @@
+# AIDA64-activation-by-fiac
